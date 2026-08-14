@@ -54,7 +54,7 @@
  ✦The hunter kisser  ˊˎ-
 
 
- ✦The Satanic Slasher kisser  ˊˎ-
+ ✦The Satanic Slasher Luver  ˊˎ-
 
 
 
