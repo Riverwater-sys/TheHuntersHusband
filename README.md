@@ -54,6 +54,8 @@
  ✦The hunter kisser  ˊˎ-
 
 
+ ✦The Satanic Slasher kisser  ˊˎ-
+
 
 
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
